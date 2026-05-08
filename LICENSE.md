@@ -1,4 +1,4 @@
-
+Experience anime card clash like never before with secure Script for anime card clash, the #1 Script. Includes silent aim and anti-ban for unbeatable
 
 
 
